@@ -1,0 +1,1 @@
+# INSPIRES_shared_site_map
